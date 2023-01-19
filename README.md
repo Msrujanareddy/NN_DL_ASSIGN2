@@ -1,1 +1,2 @@
 # NN_DL_ASSIGN2
+Assignmnet2, CANDIDATE ID :700740914, SRUJANA REDDY MAKUTAM, Video Link: https://1drv.ms/v/s!BFvnPTDPvjkoiWjN0SPRFxDxuUjH?e=LHd29Y91A0aKKLBFunhljQ&at=9
